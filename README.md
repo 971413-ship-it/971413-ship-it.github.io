@@ -20,7 +20,7 @@ This is where I put my games.
 
 
 
-for humreet-[vid](https://www.youtube.com/watch?v=1A0ykughsAY)
+
 
 
 
